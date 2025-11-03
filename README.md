@@ -1,1 +1,3 @@
-# vanity-sniper
+selam tatlim
+
+discord:49ic
